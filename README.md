@@ -1,1 +1,1 @@
-こんにちは〜 👋
+👉 https://abnoumaru.com
